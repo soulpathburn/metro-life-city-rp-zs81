@@ -1,4 +1,4 @@
-#  
+#  metro life city rp Scripts stealth is the best metro life city rp Script, featuring one-hit kill and auto-sell. Safe and powerful for all your needs.
 
 
 
